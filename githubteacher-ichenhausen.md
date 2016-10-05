@@ -7,3 +7,6 @@
 
 
 ## Food in the area
+- Schnitzel
+- Kässpätzle
+- Fresh water fish, smoked
