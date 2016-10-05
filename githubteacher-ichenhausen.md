@@ -1,4 +1,4 @@
-# Ichenhausen, Bavaria, :de:
+# Ichenhausen, Bayern, Deutschland
 
 ## Things to do in Ichenhausen
 
